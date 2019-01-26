@@ -1,2 +1,2 @@
 # kmaonchy.com
-kmaonchy.website2.me
+http://kmaonchy.website2.me
